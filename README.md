@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shrobona
+- 👋 Hi, I’m Shrobona Karkun-Sen
 - 👀 I’m interested in all things spatial about cities in India and the US, urban infrastructure, and land systems.
 - 📫 How to reach me: Email me skarkunsen@uwlax.edu or twitter: @Shrobona_KS
 
